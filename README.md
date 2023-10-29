@@ -1,0 +1,2 @@
+# AliKandemir
+portfolyo
